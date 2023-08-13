@@ -1,2 +1,0 @@
-# bongbongbakudan.github.io
-blog
